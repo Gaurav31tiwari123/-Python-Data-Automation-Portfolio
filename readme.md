@@ -1,0 +1,1 @@
+From whatever learnt in prev 3 yrs compressing it to form a roadmap if done 16 hrs a day can complete in x no. of days  — all code, projects, and notes.”
